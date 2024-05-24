@@ -12,5 +12,5 @@
 
 00001105130824sp@al.educacao.sp.gov.br
 
-![](https://media1.tenor.com/m/7FYpoXfpAIUAAAAd/snowball-bunny.gif)
+![snowball-bunny](https://github.com/franciscao16/franciscao16/assets/170096702/d67e79b5-28c8-486b-ae37-a359361a93f8)
 
